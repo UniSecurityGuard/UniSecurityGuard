@@ -14,7 +14,7 @@
 
 ### **The Reality of the Experience**
 
-I used to be an Associate Professor at a university. My year-end performance bonus was about **6,000 RMB**, and my monthly salary was **4,000 RMB**. Later, I was transferred to a campus security role. My daily routine now involves patrolling the campus, chasing away delivery drivers, and feeding the stray cats.
+I used to be an Associate Professor at a university. My year-end performance bonus was about **6,000 RMB (860 USD)**, and my monthly salary was **4,000 RMB (574 USD)**. Later, I was transferred to a campus security role. My daily routine now involves patrolling the campus, chasing away delivery drivers, and feeding the stray cats.
 
 **Ironically, my monthly take-home pay increased by 800 RMB in this role.** I’ve spent my whole life studying, yet I still don't understand what it was all for.
 
